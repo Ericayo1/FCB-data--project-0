@@ -9,3 +9,4 @@ Evaluate employment opportunities and challenges faced by the youth.
 Analyze the political participation of youth in the region.
 Investigate social activities and community involvement of young people.
 Identify barriers to effective youth engagement and propose potential solutions.
+![](_status_IMG-20191113-WA0000.jpg)
